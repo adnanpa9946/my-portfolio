@@ -1,2 +1,2 @@
 # my-portfolio
-Portfolio of Mohammed Adnan P A 
+PORTFOLIO OF Mohammed Adnan P A 
